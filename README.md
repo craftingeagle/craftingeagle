@@ -1,0 +1,10 @@
+- 👋 Hi, I’m @craftingeagle
+- 👀 Explore a wide range of crafting ideas contributed by our community members.
+- 📚 Learn new crafting techniques through step-by-step tutorials.
+- 💡 Get inspired by browsing through beautiful craft projects from around the world.
+- 💞️ Collaborate on new crafting projects, tutorials, or community events!
+- 📫 Feel free to reach out to me via email at `code.crafting.eagle@gmail.com`
+- 😄 Pronouns: Whether it's he/him, she/her, they/them, or any other, I'm comfortable with all!
+- ⚡ Fun fact: Did you know that crafting has been shown to reduce stress and anxiety levels? It's not just a hobby; it's therapy too!
+- 🫂 Join a vibrant community of crafters, share your own creations, and connect with fellow enthusiasts.
+- ✨ Happy crafting!
